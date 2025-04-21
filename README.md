@@ -3,4 +3,5 @@
 > [!NOTE]
 > En picos picados
 
-* Te amo desde primer grado
+- Te amo desde primer grado
+- El duro
