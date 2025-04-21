@@ -1,4 +1,4 @@
-# dónde caemos, gente? 🗣️
+# where are we falling to, people? 🗣️
 
 > [!NOTE]
 > En picos picados
