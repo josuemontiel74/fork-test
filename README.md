@@ -4,4 +4,4 @@
 > En picos picados
 
 - Te amo desde primer grado
-- El duro
+- El suave
