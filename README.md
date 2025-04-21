@@ -1,1 +1,4 @@
-dónde caemos, gente? 🗣️
+# dónde caemos, gente? 🗣️
+
+> [!NOTE]
+> En picos picados
